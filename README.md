@@ -17,7 +17,7 @@ I work with other companies in the Lakes area, if I can't provide a service, I w
 
 ## Accreditations
 
-- 15-year member of the International Facilities Manager Association
+- 22-year member of the International Facilities Manager Association
 - Associate Member of five lake associations
   - Pay dues to stay current with lake association requirements
   - Stay informed on local lake concerns and regulations
